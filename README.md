@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @LouisMarolleau
-- 👀 Computer Science, Financial Macroeconomics, Mathematical Statistics, Environmental Studies, Strategy
+- 👀 
 - 🌱 
 - 💞️ 
 - 📫 
